@@ -1,4 +1,5 @@
 hiii friends
+
 conflict concept is going on
 vhkfsbgn
 slh.kifvgxsb
@@ -7,5 +8,12 @@ bmdflsbc
 Bfbcmnbc
 bc
 G
-
 cb vnkc;ljvfsvgmg,mfjubvg;dfsG
+
+it created by account 1912
+bkjnfsgzkl.
+klbnsgnvdfl'
+jz;lcvsbdjlvs
+kbnvldsvnfs
+
+
